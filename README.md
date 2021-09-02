@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @dhood15
 - 👀 I’m interested in aircraft, racecars, and just about everything else.
+- :) My hobbies include Auto-racing and casual flying.
 - 🌱 I’m currently learning Aerospace Engineering at Iowa Sate
 - 💞️ I’m looking to collaborate on AerE 361 final project
 - 📫 How to reach me: email me. 
